@@ -1,2 +1,0 @@
-# rang
-as you see
